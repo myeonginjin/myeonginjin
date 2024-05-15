@@ -1,5 +1,8 @@
 ## contact 
-📞 010-9285-4118       📨 myeonginjin98@gmail.com
+📞 010-9285-4118       
+📨 myeonginjin98@gmail.com
+
+
 
 
 ## about me
