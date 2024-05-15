@@ -7,7 +7,7 @@
 
 
 ## about me
-🙋‍♂️ https://myurl.ai/zb8cqu
+🙋‍♂️ https://myurl.ai/zb8cqu   
 📝 https://blog.naver.com/kai5588
 
 
