@@ -1,6 +1,9 @@
-contact -      📞 010-9285-4118       📨 myeonginjin98@gmail.com
+##contact 
+📞 010-9285-4118       📨 myeonginjin98@gmail.com
 
-about me - https://myurl.ai/zb8cqu
+
+##about me
+📑 https://myurl.ai/zb8cqu
 
 
 
