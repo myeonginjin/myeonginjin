@@ -1,14 +1,14 @@
 반갑습니다. IT서비스 엔지니어 진명인입니다.
    
-## contact 
-📞 010-9285-4118       
-📨 myeonginjin98@gmail.com   
+## 📞 contact   
+010-9285-4118       
+myeonginjin98@gmail.com   
 <br/>
 
-## about me
-💁‍♂️ https://zrr.kr/kyOW   
-🙋‍♂️ https://myurl.ai/zb8cqu   
-📝 https://blog.naver.com/kai5588   
+## 🙋‍♂️ about me
+이력서 - https://zrr.kr/kyOW   
+포트폴리오 - https://myurl.ai/zb8cqu   
+기술블로그 - https://blog.naver.com/kai5588   
 
 
 
