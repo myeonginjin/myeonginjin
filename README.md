@@ -2,7 +2,7 @@
    
 ## contact 
 📞 010-9285-4118       
-📨 myeonginjin98@gmail.com
+📨 myeonginjin98@gmail.com   
 <br/>
 
 ## about me
