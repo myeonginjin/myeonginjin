@@ -7,8 +7,10 @@
 
 
 ## about me
+💁‍♂️ https://zrr.kr/kyOW   
 🙋‍♂️ https://myurl.ai/zb8cqu   
-📝 https://blog.naver.com/kai5588
+📝 https://blog.naver.com/kai5588   
+
 
 
 [![코드트리|실력진단-kai5588](https://banner.codetree.ai/v1/banner/kai5588)](https://www.codetree.ai/profiles/kai5588)
