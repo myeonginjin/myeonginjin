@@ -7,7 +7,6 @@ myeonginjin98@gmail.com
 
 ## 🙋‍♂️ about me
 이력서 - https://zrr.kr/kyOW   
-포트폴리오 - https://myurl.ai/zb8cqu   
 기술블로그 - https://blog.naver.com/kai5588   
 
 
