@@ -4,8 +4,7 @@
 myeonginjin98@gmail.com   
 <br/>
 
-## 🙋‍♂️ about me
-이력서 - https://zrr.kr/kyOW   
+## 🙋‍♂️ about me 
 기술블로그 - https://blog.naver.com/kai5588   
 
 
