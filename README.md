@@ -9,7 +9,6 @@ myeonginjin98@gmail.com
 
 
 
-[![코드트리|실력진단-kai5588](https://banner.codetree.ai/v1/banner/kai5588)](https://www.codetree.ai/profiles/kai5588)   
-[![Solved.ac Profile](http://mazassumnida.wtf/api/v2/generate_badge?boj=백준아이디)](https://solved.ac/kai5588/)
+[![코드트리|실력진단-kai5588](https://banner.codetree.ai/v1/banner/kai5588)](https://www.codetree.ai/profiles/kai5588)&nbsp;&nbsp;
 
 
