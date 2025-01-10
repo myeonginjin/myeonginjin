@@ -1,8 +1,5 @@
 반갑습니다. IT서비스 엔지니어 진명인입니다.   
 <br/>
-## 📞 contact          
-myeonginjin98@gmail.com   
-<br/>
 
 ## 🙋‍♂️ about me 
 기술블로그 - https://blog.naver.com/kai5588  
